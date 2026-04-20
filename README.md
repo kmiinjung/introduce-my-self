@@ -15,4 +15,4 @@
 
 5년 뒤, 저는 영화 산업 현장에서 텍스트 속의 이미지를 가장 세련된 영상미로 연출해내는 독보적인 서사 연출가로 성장해 있을 것입니다. 국어국문학에서 배운 서사의 밀도와 영상 전공에서 익힌 제작 실무를 결합하여, 관객의 마음을 움직이는 이미지를 구현하고 작품을 끝까지 책임지는 연출가로 자리매김하겠습니다.
 
-![image](https://chatgpt.com/backend-api/estuary/content?id=file_0000000017607206a5ce3ed386b61f9c&ts=493516&p=fs&cid=1&sig=2aeeadbbf38832bf073ff82650de6a5ce5eba31889eb1dec0f6e27b430b591aa&v=0.png)
+![image](<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/f5be8c3f-55f5-4f43-94fc-b174133b0278" />)
