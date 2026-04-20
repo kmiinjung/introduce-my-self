@@ -12,4 +12,4 @@
 
 이처럼 문학적 이미지를 영상 언어로 치환하는 과정 속에서 연출에 대한 확신을 쌓아가고 있습니다. 앞으로도 인문학적 통찰과 제작 역량을 결합하여 보이지 않는 감정과 서사를 설득력 있는 이미지로 구현하고, 작품의 메시지를 끝까지 책임지는 연출가로 성장하고자 합니다.
 
-![카메라](https://img.pikbest.com/png-images/qiantu/camera-shooting-equipment-illustration_2623537.png!sw800)
+![image](https://www.shutterstock.com/image-vector/silhouette-film-reel-unwind-strip-260nw-2708434715.jpg)
